@@ -6,6 +6,8 @@
 - https://millennialmoneyman.com/best-gig-apps/
 - https://ideausher.com/blog/top-10-gig-apps-help-to-make-money/
 - https://sidehustles.com/best-gig-apps/
+- https://www.shiftnow.com/blog/gig-apps-that-pay-same-day
+- https://www.baconwork.com/blog/top-gig-apps-for-flexible-work-in-2025-find-shifts-that-fit-your-schedule
 
 # video:
 - [The Highest Paying Gig Apps Of 2023](https://youtu.be/FbqWof_okmg)
