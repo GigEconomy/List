@@ -14,6 +14,7 @@
 - https://sidehustles.com/best-gig-apps/
 - https://www.withpara.com/blog/30-best-gig-apps-2023
 - https://financialpanther.com/the-ultimate-list-of-gig-economy-apps/
+- https://www.thepennyhoarder.com/make-money/best-gig-apps/
 
 # video:
 - [The Highest Paying Gig Apps Of 2023](https://youtu.be/FbqWof_okmg)
