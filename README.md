@@ -11,6 +11,9 @@
 - https://www.thewaystowealth.com/gig-economy-jobs/
 - https://millo.co/gig-economy-apps
 - https://gigsmart.com/blog/26-best-gig-economy-apps-make-quick-money-with-a-legit-side-hustle/
+- https://sidehustles.com/best-gig-apps/
+- https://www.withpara.com/blog/30-best-gig-apps-2023
+- https://financialpanther.com/the-ultimate-list-of-gig-economy-apps/
 
 # video:
 - [The Highest Paying Gig Apps Of 2023](https://youtu.be/FbqWof_okmg)
