@@ -17,6 +17,7 @@
 - https://www.thepennyhoarder.com/make-money/best-gig-apps/
 - https://www.shiftnow.com/blog/what-are-the-best-gig-apps
 - https://www.thebudgetdiet.com/jobs-like-doordash
+- https://www.withpara.com/blog/35-highest-paying-gig-economy-jobs
 
 # video:
 - [The Highest Paying Gig Apps Of 2023](https://youtu.be/FbqWof_okmg)
@@ -25,3 +26,6 @@
 # Favorite:
 ## by: @YourDriverMike
 - [6 NEW Gig Apps No One Is Talking About In 2024](https://youtu.be/n3m8MiscamE)
+
+# Discuss:
+https://www.reddit.com/r/GigWork/comments/1dse9qa/most_of_these_gig_apps_are_bs/
