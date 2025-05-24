@@ -26,6 +26,7 @@
 # Favorite:
 ## by: @YourDriverMike
 - [6 NEW Gig Apps No One Is Talking About In 2024](https://youtu.be/n3m8MiscamE)
+- [MOST Profitable Gig App Combinations (2025)](https://youtu.be/RDg5YqqRDfo)
 
 # Discuss:
 https://www.reddit.com/r/GigWork/comments/1dse9qa/most_of_these_gig_apps_are_bs/
