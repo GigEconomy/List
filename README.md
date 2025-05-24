@@ -22,6 +22,7 @@
 # video:
 - [The Highest Paying Gig Apps Of 2023](https://youtu.be/FbqWof_okmg)
 - [TOP 12 Gig Apps To Make Money 💲💲 (I've Tried Them All)](https://youtu.be/aTXfMGkeVCI)
+- [4 NEW Gig Apps That Pay Up To $6,000+ Month (2025)](https://youtu.be/nrmwXHdoQCU)
 
 # Favorite:
 ## by: @YourDriverMike
